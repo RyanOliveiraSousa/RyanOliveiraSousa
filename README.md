@@ -1,0 +1,9 @@
+BEM VINDO AO MEU GITHUB
+
+ESTUDANTE DE ANALISE E DESENVOLVIMENTO DE SISTEMAS
+
+LINKEDIN: https://www.linkedin.com/in/ryan-oliveira-b731b11a2/
+
+
+
+
